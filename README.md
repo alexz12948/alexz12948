@@ -1,6 +1,6 @@
 ## Hiya! I'm Alex!!
 
-I just recently graduated from Tufts and will start working at Meta in the fall. I am just playing around with features on GitHub that I never had an opportunity to! :smile:
+I just recently graduated from Tufts and will work at Five Rings Captial in April. I am just playing around with features on GitHub that I never had an opportunity to! :smile:
 
 ### A little bit about me
 
